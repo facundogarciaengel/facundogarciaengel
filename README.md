@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @facundogarciaengel
-- 👀 I’m interested... in ciencia, literatura,filosofía, ciencias aplicadas al deporte y a la actividad fisica, movimiento humano. 
-- 🌱 I’m currently learning ... psicología, pedagogía, anatomía...
-- 💞️ I’m looking to collaborate on ... aplicaciones relacionadas a la salud o actividad fisíca, 
+- 👀 I’m interested...in thinks than can change life society. 
+- 🌱 I’m currently learning ...how can do great thinks with technology...
+- 💞️ I’m looking to collaborate on ... projects than can help to improve our lifes, 
 - 📫 How to reach me ...fgarciaengel@gmail.com 
 
 <!---
