@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @facundogarciaengel
 - 👀 I’m interested...in thinks than can change life society. 
-- 🌱 I’m currently learning ...how can do great thinks with technology...
+- 🌱 I’m currently learning ...how can do great things with technology...
 - 💞️ I’m looking to collaborate on ... projects than can help to improve our lifes, 
 - 📫 How to reach me ...fgarciaengel@gmail.com 
 
